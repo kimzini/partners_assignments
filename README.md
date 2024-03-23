@@ -1,1 +1,1 @@
-# 안녕하세요 김진희입니다 ㅎㅎ
+# partners assignment
